@@ -1,1 +1,3 @@
 # Segundo_Parcial_Infografia_Candy_Crush
+
+Brenda Alavarado
