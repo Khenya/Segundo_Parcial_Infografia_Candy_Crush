@@ -1,3 +1,4 @@
 # Segundo_Parcial_Infografia_Candy_Crush
 
-Brenda Alavarado
+Nombre: Brenda Khenya Alavarado Choque
+Código: 61186
